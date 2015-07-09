@@ -1,4 +1,4 @@
-[Auto Echange] BTCE, PM, WMZ với 3 Sites Auto rate theo số lượng tốt nhất.
+[Auto Echange] BTCE, PM, WMZ với 3 Sites Auto rate theo số lượng tốt nhất.<br />
 https://www.muapm.net/ - https://www.muawmz.net/ - https://www.muabtce.net/
 <center>
 <img src="https://www.muapm.net/Images/muapm.gif" alt="MuaPM.Net">
